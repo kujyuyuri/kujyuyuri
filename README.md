@@ -20,7 +20,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ <sup> i fucking lvoe blinkies look below for my collection
 
-![tumblr_8cf29d67cf36cdde68c909fc019a9623_01daabb1_250](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/94379a73-8fe3-4f31-8fd0-201ac3dc1ce7)![ezgif-5-28a037b920](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/eb001753-7813-476e-b6ed-2024d1750b83)![tumblr_c12b41ef731229a81758525e07e28040_89eee059_100](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/d2a3dece-3799-459b-9459-7dc0d297de87)![ezgif-3-531c809f1a](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/bd3fefab-26bd-4268-8c47-89dba0c5c3fd)
+‎ ‎ ‎ ![tumblr_8cf29d67cf36cdde68c909fc019a9623_01daabb1_250](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/94379a73-8fe3-4f31-8fd0-201ac3dc1ce7)![ezgif-5-28a037b920](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/eb001753-7813-476e-b6ed-2024d1750b83)![tumblr_c12b41ef731229a81758525e07e28040_89eee059_100](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/d2a3dece-3799-459b-9459-7dc0d297de87)![ezgif-3-531c809f1a](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/bd3fefab-26bd-4268-8c47-89dba0c5c3fd)
 ![tumblr_bf8282124c280e97c50a4b79d8535599_8f26aa6a_250](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/7754e92e-5803-4783-84ef-34d8aff5dd07)
 
 
@@ -33,7 +33,7 @@
 
 
 
-![ezgif-7-2ac0de65a1](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/a025a79e-b04c-4d7a-bc42-0f42398c33a3)![ezgif-3-38bc274509](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/0313317c-2718-426b-9953-3aa036826002)![tumblr_726eb01911ed4fd92af0f359f1dd7da1_44e5c507_100](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/d00a236d-d793-4f82-8270-0e76eef7bfee)![ezgif-3-715955e352](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/edfb4237-5230-4c37-91fa-b90090dce0d5)![tumblr_0e01a4e82a773f269e02eb6b1a698cc1_37e8996a_250](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/875bc230-8431-4717-a4e7-405f38445c5e)
+‎ ‎ ‎ ![ezgif-7-2ac0de65a1](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/a025a79e-b04c-4d7a-bc42-0f42398c33a3)![ezgif-3-38bc274509](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/0313317c-2718-426b-9953-3aa036826002)![tumblr_726eb01911ed4fd92af0f359f1dd7da1_44e5c507_100](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/d00a236d-d793-4f82-8270-0e76eef7bfee)![ezgif-3-715955e352](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/edfb4237-5230-4c37-91fa-b90090dce0d5)![tumblr_0e01a4e82a773f269e02eb6b1a698cc1_37e8996a_250](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/875bc230-8431-4717-a4e7-405f38445c5e)
 
 
 
