@@ -23,8 +23,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ <sup> i fucking lvoe blinkies look below for my collection
 
-‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎   ‎ ![tumblr_8cf29d67cf36cdde68c909fc019a9623_01daabb1_250](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/94379a73-8fe3-4f31-8fd0-201ac3dc1ce7)![ezgif-5-28a037b920](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/eb001753-7813-476e-b6ed-2024d1750b83)![tumblr_c12b41ef731229a81758525e07e28040_89eee059_100](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/d2a3dece-3799-459b-9459-7dc0d297de87)![ezgif-3-531c809f1a](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/bd3fefab-26bd-4268-8c47-89dba0c5c3fd)
-![tumblr_bf8282124c280e97c50a4b79d8535599_8f26aa6a_250](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/7754e92e-5803-4783-84ef-34d8aff5dd07)
+‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎   ‎ ![tumblr_8cf29d67cf36cdde68c909fc019a9623_01daabb1_250](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/94379a73-8fe3-4f31-8fd0-201ac3dc1ce7)![ezgif-5-28a037b920](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/eb001753-7813-476e-b6ed-2024d1750b83)![tumblr_c12b41ef731229a81758525e07e28040_89eee059_100](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/d2a3dece-3799-459b-9459-7dc0d297de87)![ezgif-3-531c809f1a](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/bd3fefab-26bd-4268-8c47-89dba0c5c3fd)![tumblr_bf8282124c280e97c50a4b79d8535599_8f26aa6a_250](https://github.com/kujyuyuri/kujyuyuri/assets/167147862/7754e92e-5803-4783-84ef-34d8aff5dd07)
 
 
 
